@@ -11,7 +11,7 @@ I like listening to rock music.
 
 I don't like doing much yard work. I am comfortable with mowing the lawn, though.
 
-I am currently working as an animator, voice actor, game programmer and musician.
+I am currently working as an animator, voice actor, game programmer and musician. I don't have an organization or band yet, but I am looking to initiate one!
 
 
 
