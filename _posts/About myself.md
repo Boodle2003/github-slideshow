@@ -1,7 +1,7 @@
 ---
 layout: slide
+title: "Let me tell you a little bit about myself..."
 ---
-Let me tell you a little bit about myself...
 
 I love playing video games! Especially Xbox and Nintendo!
 
